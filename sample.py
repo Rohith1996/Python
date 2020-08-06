@@ -1,11 +1,7 @@
-There are quite a few unsafe system followed in the warehouse and it has to be taken into serious note to avoid furthur loss and damage . 
+Workers and managers have also given their suggestions and voluntary feedback about conditions that can made to improve the safety in this firm .
 
-* First thing that i noticed was that the path which FLT's and employee used to use is very narrow small and hence sometime they collide with each other and cause damage . 
+* Management should inspect warehouse frequently and should take complaints raised by employees seriously . There should be written records of incidents if any happened so that they can claim to firm if same incidents occurs many times and steps to be taken to resolve it .
 
-* Then employed who used to operate FLT's are pretty young and don't have much experience in operating it effectively hence only people who are trained enough should be allowed to operate .
+* There should be proper training given to the employees and they shouldn't allow someone who isn't skilled enough to operate FLT that can cause huge accidents to workers and goods .
 
-* Mobile phones usage should be avoided while working in crucial situations .
-
-* In some places goods are staked in aisles and blocking designated walkways . They should be properly organised and kept so that blockage of paths can be avoided .
-
-* In recent accident there were oil spillage in ground due to which FLT skidded and fell on the goods aside . There should be quick action taken to clean spillage in path to avoid accidents henceforth .
+* separate pathways should be made to Employee and FLT to enter the warehouse so that it can reduce the collision and damage .
